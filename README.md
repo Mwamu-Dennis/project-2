@@ -41,4 +41,9 @@ RECOMMENDATIONS
 -The NGO'S can also help the region with insecticides to control pests and diseases.
 
 
+For more findingsa tableau link https://public.tableau.com/app/profile/dennis.mwamu/viz/KARAMOJAREGION/Karamojaprojectdashboard?publish=yes
+can be used to explain the findings more.
+
+THANK YOU
+
 
